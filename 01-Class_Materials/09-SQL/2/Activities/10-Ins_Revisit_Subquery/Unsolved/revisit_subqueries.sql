@@ -1,1 +1,0 @@
--- Find how many people rented BLANKET BEVERLY
